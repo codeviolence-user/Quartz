@@ -1,1 +1,1 @@
-![Quartz](https://github.com/user-attachments/assets/33ef7e4f-6cf4-4265-96c1-56d0e05329e7)
+![Quartz](https://github.com/user-attachments/assets/ca65592b-4f48-46d3-8e19-aa1bad0786fe)
