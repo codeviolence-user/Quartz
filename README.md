@@ -1,1 +1,1 @@
-![Quartz](https://github.com/user-attachments/assets/ca65592b-4f48-46d3-8e19-aa1bad0786fe)
+<img width="1920" height="800" alt="Quartz" src="https://github.com/user-attachments/assets/a5494d8f-e9a0-4de2-bd5f-b2ad56c0cde7" />
